@@ -1,1 +1,1 @@
-Proyecto-de-electiva
+Proyecto de electiva
